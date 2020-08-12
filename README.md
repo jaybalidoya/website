@@ -1,0 +1,2 @@
+# website
+PLEASE CONTACT ME FIRST BEFORE USING IT. THANKS! (Discord Cathal9970)
